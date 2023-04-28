@@ -20,7 +20,7 @@ I'm interested in learning Power BI, more about CSS and Front End tools to impro
 </br>
 </br>
 
-🌈🌈🌈I would love to develop myself in a company where inclusion and genre perspective are taken into account 🌈🌈🌈
+🌈🌈🌈 I would love to develop myself in a company where inclusion and genre perspective are taken into account 🌈🌈🌈
 
  📫 You can reach me : catalinahardoy@gmail.com
  
