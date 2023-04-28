@@ -16,6 +16,10 @@ using :
 ✅ Material UI
 </br>
 
+I'm interested in learning Power BI, more about CSS and Front End tools to improve.
+</br>
+I would love to develop myself in a company where inclusion and genre perspective are taken into account 🌈🌈🌈
+
  📫 You can reach me : catalinahardoy@gmail.com
  
 
